@@ -1,0 +1,1 @@
+# rau-software-packs-for-statics-G603CSE-2022-2023
